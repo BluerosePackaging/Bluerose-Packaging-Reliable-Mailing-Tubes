@@ -121,9 +121,7 @@ Contact Bluerose Packaging today to discuss mailing tube solutions for commercia
 
 Our team helps organizations select the right packaging systems to improve product protection, optimize storage capabilities, and maintain secure deliveries throughout the supply chain
 
-```
-
-### All Areas for Packaging 
+### All Location We Serve
 
 | Tustin | Brea | Long Beach | Anaheim | Ontario |
 |--------|------|-------------|---------|----------|
